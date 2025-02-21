@@ -1,4 +1,4 @@
-### Hello World, I'm Anushiya aka undergraduate for Software Engineering 👋
+### Hello World, I'm Anushiya aka fresh graduate for Software Engineering 👋
 
 
 ![Welcome to Technology Talk Google Classroom Header](https://user-images.githubusercontent.com/104670097/226092134-0e986bea-ac28-4036-b564-b0b74a031f63.svg)
