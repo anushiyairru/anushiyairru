@@ -10,7 +10,7 @@
 
 Here are some ideas to get you started:
 -->
-- 🔭 I’m currently working on my degree fyp
+- 🔭 I’m currently working on personal projects to learn new languages
 - 🤔 I’m looking for help with ideas and suggestions to improve
 - 💬 Ask me about softskills 
 - 📫 How to reach me: ..[Email](anushiyairrulappen@yahoo.com)
